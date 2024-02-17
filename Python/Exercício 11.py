@@ -1,1 +1,0 @@
-'Lucas de Léo Barrios'
